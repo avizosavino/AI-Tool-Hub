@@ -1,1 +1,1 @@
-# AI-Tool-Hub
+https://a6c291e0-1cc7-4a18-96e3-a3d758ea9bda-00-8vzyg8m932wi.sisko.replit.dev/?nativeBrowserPresentationStyle=fullScreen
